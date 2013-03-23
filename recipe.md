@@ -1,7 +1,7 @@
 Basic recipe
 =======
 
-Protein
+Protein - Casein powder
 
 Carbohydrates
 
